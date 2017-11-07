@@ -1,0 +1,1 @@
+Bazso_Gondoltam_egy_szamra
